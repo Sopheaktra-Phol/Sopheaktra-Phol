@@ -1,4 +1,4 @@
-## Hi There!, I'm Sopheaktra AKA Nexus
+## Hi There!, I'm Sopheaktra aka Nexus
 
 Information Technology Engineering Student<br/>
 Digital Artist<br/>
