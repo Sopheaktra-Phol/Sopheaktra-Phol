@@ -2,7 +2,7 @@
 
 Information Technology Engineering Student<br/>
 Digital Artist<br/>
-Graphic Designer
+Graphic Designer<br/>
 Videographer
 
 # 💻 Tech Stack:
